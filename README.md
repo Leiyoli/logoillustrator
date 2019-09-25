@@ -1,2 +1,2 @@
-# leoli3
+# Logo design with Illustrator
 image for logo
